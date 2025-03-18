@@ -1,7 +1,7 @@
 # Recipes
 A repo containing a list of recipes that are both vegan and potentially plastic-free.
 
-##[Vegetable satay](https://www.olivemagazine.com/recipes/vegetarian/vegetable-satay-curry/)
+## [Vegetable satay](https://www.olivemagazine.com/recipes/vegetarian/vegetable-satay-curry/)
 ### Notes:
 #### Ingredients:
 Double all quantities except ginger.
