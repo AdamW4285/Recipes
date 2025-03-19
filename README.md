@@ -13,3 +13,14 @@ Include soy sauce and sugar in the satay sauce.
 #### Method:
 Begin cooking rice/noodles when aubergine is almost ready.<br>
 Mix coconut milk, peanut butter, soy sauce and sugar separately and add ~2 minutes before serving.
+
+## [Jerk Soya Rice and Peas](https://www.bbc.co.uk/food/recipes/jamaican_rice_and_peas_66627)
+
+### Notes:
+#### Ingredients:
+Swap out any coconut for one can of coconut milk. <br>
+Swap out kidney beans for gungo beans if possible. <br>
+Double allspice amount and ALWAYS add more garlic!
+
+#### Method:
+Serve alongside soya chunks marinated in 50/50 jerk sauce/olive oil.
