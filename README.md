@@ -25,3 +25,20 @@ Double allspice amount and ALWAYS add more garlic!
 
 #### Method:
 Serve alongside soya chunks marinated in 50/50 jerk sauce/olive oil.
+
+## [Mushroom Risotto](https://hellskitchenrecipes.com/mushroom-risotto/)
+
+### Notes:
+#### Ingredients:
+Only use half the stock suggested (can be vegetable or chicken).<br>
+Add ~40/50g porcini mushrooms (or other wild dried mushrooms as available).<br>
+Use as much risotto as your pan allows - but remember it will need stirring!<br>
+Experiment with different mushrooms!<br>
+Use dried parsley for ease.<br>
+Use nutritional yeast instead of parmesan.
+
+#### Method:
+Soak dried mushrooms in enough boiling water to replace the stock.<br>
+Add fresh mushrooms in along with garlic, having chopped them relatively small.<br>
+Use the liquid from the dried mushrooms as stock, adding additional stock if required. Add dried mushrooms along with the last bits of stock.<br>
+Add dried parsley ~5 mins before the end to give it time to moisten, and add nutritinal yeast a little after, as well as as a topping.
