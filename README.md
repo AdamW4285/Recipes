@@ -42,3 +42,18 @@ Soak dried mushrooms in enough boiling water to replace the stock.<br>
 Add fresh mushrooms in along with garlic, having chopped them relatively small.<br>
 Use the liquid from the dried mushrooms as stock, adding additional stock if required. Add dried mushrooms along with the last bits of stock.<br>
 Add dried parsley ~5 mins before the end to give it time to moisten, and add nutritinal yeast a little after, as well as as a topping.
+
+##[Colombian Black Bean Stew](https://thelittleplantation.co.uk/blog/colombian-black-bean-stew)
+
+### Notes:
+#### Ingredients:
+Option to include a grilled red pepper/rustic bread on the side instead of avocado.<br>
+Use 2 cans of black beans and double spices.
+
+#### Method:
+Add ginger with garlic.<br>
+Add chilli flakes towards end of cooking. <br>
+Begin cooking rice just before beans go in.<br>
+If there's time, soak/boil the black beans first to soften them.<br>
+Don't add the spices stright after the beans, stir and then leave the beans for a little.<br>
+Add some salt with the onions to begin.
