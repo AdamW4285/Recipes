@@ -43,7 +43,7 @@ Add fresh mushrooms in along with garlic, having chopped them relatively small.<
 Use the liquid from the dried mushrooms as stock, adding additional stock if required. Add dried mushrooms along with the last bits of stock.<br>
 Add dried parsley ~5 mins before the end to give it time to moisten, and add nutritinal yeast a little after, as well as as a topping.
 
-##[Colombian Black Bean Stew](https://thelittleplantation.co.uk/blog/colombian-black-bean-stew)
+## [Colombian Black Bean Stew](https://thelittleplantation.co.uk/blog/colombian-black-bean-stew)
 
 ### Notes:
 #### Ingredients:
